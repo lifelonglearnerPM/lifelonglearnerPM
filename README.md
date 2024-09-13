@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning ... AI, Multimedia, Computer Vision, Augmented reality (AR), & Mixed reality (MR).
 - 💞️ I’m looking to collaborate on ... Multimedia, AI, Computer Vision, Augmented reality (AR), & Mixed reality (MR) projects
 - 📫 How to reach me ...If you know me, you definitely know who I am! 😎 I like my privacy! 🤫
-- 😄 Pronouns: ...I’m not big fan of pronouns, and I’m definitely not confused! 😅🤷‍♀️
+- 😄 Pronouns: ... 👩‍🦰
 - ⚡ Fun fact: ...I'm not a perfectionist, but I could be just the person your team is looking for! 😊
 
 <!---
