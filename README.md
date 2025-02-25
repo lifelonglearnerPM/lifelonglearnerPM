@@ -4,7 +4,8 @@
 - 💞️ I’m looking to collaborate on ... Multimedia, AI, Computer Vision, Augmented reality (AR), & Mixed reality (MR) projects
 - 📫 How to reach me ...If you know me, you definitely know who I am! 😎 I like my privacy! 🤫
 - 😄 Pronouns: ... 👩‍🦰
-- ⚡ Fun fact: ...I'm not a perfectionist, but I could be just the person your team is looking for! 😊
+- 🧠 My Work Philosophy ...I'm not a perfectionist, I believe in learning and continuous improvement 👩🏻‍💻
+- ⚡ Fun fact: I am the person your team is looking for! 😊
 
 <!---
 lifelonglearnerPM/lifelonglearnerPM is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
